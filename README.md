@@ -18,3 +18,5 @@ wii anouncer - https://uberduck.ai/
 zamn bf - https://youtu.be/Q26ii2T4w2I
 
 mean bf - https://gamebanana.com/mods/330977
+
+if i forgot anything please tell me
