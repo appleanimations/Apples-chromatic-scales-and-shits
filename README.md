@@ -1,4 +1,4 @@
-# Apples-soundfonts-and-shits
+# Apples-chromatic-scales-and-shits
 benis
 
 Samples from
