@@ -19,6 +19,18 @@ zamn bf - https://youtu.be/Q26ii2T4w2I
 
 mean bf - https://gamebanana.com/mods/330977
 
+cd sonic - sonic cd
+
+schoolhouse sonic - sonic schoolhouse
+
+kirby and ness - super smash bros ultimate
+
+hunga - https://gamebanana.com/mods/355807
+
+kk slider - animal crossing
+
+all youtubers come from their youtube channals
+
 if i forgot anything please tell me
 
 my yt : https://www.youtube.com/channel/UCVjIlq0C9sVeoYZYi9HN2uA
